@@ -1,7 +1,7 @@
 ﻿**PravdaPay Gizlilik Politikası Kullanım Sözleşmesi**
 
 
-**Son Güncellenme Tarihi:** 28 Ocak 2024
+**Son Güncellenme Tarihi:** 29 Ocak 2024
 
 **Genel Hükümler:**
 
